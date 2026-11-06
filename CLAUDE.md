@@ -9,6 +9,7 @@
 - Сайт: https://incon.com.ua — на ринку з 2005 року, Київ.
 - Facebook: https://www.facebook.com/inconseminar/ (на сайті посилання на нього немає).
 - Instagram: https://instagram.com/incon.consulting
+- Telegram: @incons (вказаний у шаблоні опису відео на YouTube)
 - YouTube: https://www.youtube.com/@incon-296 — «INCON Інформ-Консалтинг», з 2019 р.;
   на листопад 2026: 501 підписник, 226 відео, 22,5 тис. переглядів усього
   (≈10–150 переглядів на відео). Проблеми: старі записи (звітність 2022–2023)
